@@ -13,6 +13,8 @@ By studying from PrepInsta Prime got Placed in 7 different companies the followi
 6. Cognizant
 7. Accenture
 
+![Book logo](11e624_91b5064ebdc14e80bab0888910a2367b_mv2.jpg)
+![Book logo](11e624_7a5eed7cbdc84520873ce372adc071fc_mv2.jpg)
 
 
 ### My Experience With PrepInsta Prime
@@ -74,3 +76,34 @@ I was very bad at coding, I couldn't even solve basic First year college program
 7. Its cheap also, coding ninjas and upgrad etc but they are costly. Upto 30,000 PrepInsta is subscription is much cheaper. Around 5000 for 2 years.
 
 8. They also helped with referrals via PrepInsta Placement Cell, I got referral in Microsoft and Cisco
+
+![Book logo](11e624_15f88e4926684a219396e8c881c5e98d_mv2.jpg)
+![Book logo](11e624_3e5c66e7485f457ea464535108b4f10f_mv2.jpg)
+![Book logo](11e624_3e8e5816a1b044c986040ce90a1623cb_mv2.jpg)
+![Book logo](11e624_50a5ee1c60fb495fb8632cb99eab4982_mv2.jpg)
+![Book logo](11e624_8c49e8aaea4e4e77abd5bcce6c29b59b_mv2.jpg)
+![Book logo](11e624_9d64ccbf63384bc2b5e10f9e6a8ec067_mv2.jpg)
+![Book logo](11e624_a19b9e6dd7874c45ac8d5d9df01e7234_mv2.jpg)
+
+
+All in all PrepInsta is the best subscription that you can take. I would definitely recommend anybody.
+
+Infact my 2 college friends and my brother (in 2nd year college) got their subscription after i recommended them and they also like PrepInsta.
+
+Also, not sure that they mention it on their website. But, they send referrals to people who complete their Competitive Coding/DSA course.
+
+I got call from PrepInsta that If i want to apply to Amazon, Cisco, Microsoft. I am eligible as completed DSA/Comp. Coding. I got referred from them
+
+
+1. Cleared Microsoft Interview 
+2. Cleared Cisco Interview
+3. Got Rejected in Amazon however.
+
+I missed a few pointers but, right now I am tired. I will update this post within 1 week to talk more about following later -
+
+1. Doubt Solving
+2. Mentorship
+3. Best Teachers
+4. Additional Live Classes
+
+But even my experience with above 4 points is positive.
